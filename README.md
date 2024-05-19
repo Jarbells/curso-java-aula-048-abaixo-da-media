@@ -1,0 +1,1 @@
+Vetores: Abaixo da média.
